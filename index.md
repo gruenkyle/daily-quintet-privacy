@@ -42,6 +42,6 @@ This privacy policy may be updated as the application evolves. Any changes will 
 
 If you have questions about this privacy policy, you can contact us at:
 
-**Email:** [INSERT YOUR SUPPORT EMAIL]
+**Email:** kylegruen4@gmail.com
 
 **Application:** Daily Quintet
